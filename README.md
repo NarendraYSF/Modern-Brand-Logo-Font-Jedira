@@ -1,6 +1,6 @@
 # Modern Brand Logo Font - Jedira
 
-![Jedira Font Showcase](https://your-image-link.com)
+![Jedira Font Showcase](896115f4-6ced-4965-8e8f-80cbd51a6ddf.jpg)
 
 **Jedira** is a modern, stylish, and versatile typeface designed specifically for branding, logos, and creative design projects. Its sleek, geometric structure makes it perfect for high-end brands, tech companies, and minimalistic designs.
 
